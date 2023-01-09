@@ -2,6 +2,7 @@
 
 TRY IT !!
 https://www.instagram.com/ar/138151090499768/
+It has more than 53 thousand exposures on Instagram now!
 
 This is an Instagram filter that has throw up effect when user open their mouth.
 
