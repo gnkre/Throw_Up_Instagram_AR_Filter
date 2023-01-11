@@ -1,8 +1,7 @@
 # Interactive Instagram AR effect 考試腸胃炎ig AR濾鏡
 
-TRY IT !!
+[TRY IT HERE](https://www.instagram.com/ar/138151090499768/)
 
-https://www.instagram.com/ar/138151090499768/
 It has more than 53 thousand exposures on Instagram now!
 
 This is an Instagram filter that has throw up effect when user open their mouth.
