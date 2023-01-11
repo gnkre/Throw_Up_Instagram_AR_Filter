@@ -1,4 +1,4 @@
-# Throw_Up_Instagram_AR_Filter 考試腸胃炎ig AR濾鏡
+# Interactive Instagram AR effect 考試腸胃炎ig AR濾鏡
 
 TRY IT !!
 
